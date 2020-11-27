@@ -1,0 +1,2 @@
+# Secretarial_Skill_Proficiency_Test
+秘書検定資料
